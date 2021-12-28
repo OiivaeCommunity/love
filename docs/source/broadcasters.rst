@@ -1,6 +1,6 @@
 Broadcasters
 ========
-Welcome! Here you can read a bit about the team here.
+Welcome! Here you can read a bit about the team here. (Fun Fact: None of these fuckers followed the format so I am having to cliffnotes this shit)
 
 
 Oiivae (She/Her)
@@ -18,6 +18,7 @@ Twitter: https://twitter.com/_myrral
 
 Twitch: https://twitch.tv/myrral
 
+
 Violetstorm (She/Her)
 ''''''''
 Violet, the frenchie, badass, chaotic, gothicorn ENVtuber who loves gaming, singing, doodling, thunderstorms and pretty girls!
@@ -25,6 +26,7 @@ Violet, the frenchie, badass, chaotic, gothicorn ENVtuber who loves gaming, sing
 Twitter: https://twitter.com/violetstormVT
 
 Twitch: https://www.twitch.tv/violetstorm_s
+
 
 Bird_Partii (They/Them)
 '''''''
@@ -35,3 +37,12 @@ Twitter: https://twitter.com/Bird_Partii
 Twitch: https://www.twitch.tv/bird_partii 
 
 Ko-fi: https://ko-fi.com/bird_partii
+
+
+CainSparrow (They/Them (Preferred), She/Her, He/Him)
+'''''''
+Cain Sparrow or Stinky Baby, the Eldritch God/dess living on the moon!
+
+Twitter: https://twitter.com/CainSparrow
+
+Twitch: https://www.twitch.tv/CainSparrow
