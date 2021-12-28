@@ -16,3 +16,7 @@ Myrral, the friendly blue ringed octopus! Myrral Loves gaming, anime, science, B
 
 https://twitter.com/_myrral
 https://twitch.tv/myrral
+
+Violet (She/Her)
+''''''''
+Violet, the gothicorn
