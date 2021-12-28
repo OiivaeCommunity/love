@@ -5,8 +5,6 @@ Welcome! Here you can read a bit about the team here.
 
 Oiivae (She/Her)
 ''''''
-.. image:: icons/ovi.png
-
 Ovi, everyones favorite keter-classed neckogecko
 
 https://www.twitch.tv/oiivae
