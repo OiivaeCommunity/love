@@ -5,7 +5,7 @@ Welcome! Here you can read a bit about the team here.
 
 Oiivae (She/Her)
 ''''''
-Ovi, everyones favorite keter-classed neckogecko
+Ovi, everyones favorite keter-classed neckogecko who dispises the French
 
 https://www.twitch.tv/oiivae
 
