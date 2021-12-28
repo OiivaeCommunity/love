@@ -7,21 +7,31 @@ Oiivae (She/Her)
 ''''''
 Ovi, everyones favorite keter-classed neckogecko.
 
-https://www.twitch.tv/oiivae
+Twitch: https://www.twitch.tv/oiivae
 
 
 Myrral (She/Her)
 ''''''''
 Myrral, the friendly blue ringed octopus! Myrral Loves gaming, anime, science, Bees, and Hollow Knight
 
-https://twitter.com/_myrral
+Twitter: https://twitter.com/_myrral
 
-https://twitch.tv/myrral
+Twitch: https://twitch.tv/myrral
 
-Violet (She/Her)
+Violetstorm (She/Her)
 ''''''''
-Violetstorm, the frenchie, badass, chaotic, gothicorn ENVtuber who loves gaming, singing, doodling, thunderstorms and pretty girls!
+Violet, the frenchie, badass, chaotic, gothicorn ENVtuber who loves gaming, singing, doodling, thunderstorms and pretty girls!
 
-https://twitter.com/violetstormVT
+Twitter: https://twitter.com/violetstormVT
 
-https://www.twitch.tv/violetstorm_s
+Twitch: https://www.twitch.tv/violetstorm_s
+
+Bird_Partii (They/Them)
+'''''''
+Jenna, local eldritch bird vtuber that does art.
+
+Twitter: https://twitter.com/Bird_Partii
+
+Twitch: https://www.twitch.tv/bird_partii 
+
+Ko-fi: https://ko-fi.com/bird_partii
