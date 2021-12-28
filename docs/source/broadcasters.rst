@@ -1,6 +1,6 @@
 Broadcasters
 ========
-Welcome! Here you can read a bit about the staff here.
+Welcome! Here you can read a bit about the team here.
 
 
 Oiivae (She/Her)
