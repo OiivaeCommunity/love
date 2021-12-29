@@ -9,13 +9,13 @@ Team Ovi
 Site Council
 -------
 
-Sandhands
+Sandhands (He/Him)
 ^^^^^
 Attorney-at-Sand.
 
 https://www.twitch.tv/mrsandhands 
 
-Finleaf
+Finleaf (She/Her They/Them)
 ^^^^^
 Sand-at-Attorney?
 
@@ -25,7 +25,7 @@ Site Director (Senior Admin)
 -------
 Most senior moderator. Manages the moderation team and behind the scenes stuff
 
-nerdyjohnny
+nerdyjohnny (He/Him)
 ^^^^^
 Johnny, 23, the nerd who trys his best at paramedicine. Lives in NC, USA (EST) with 3 cats: Yuri, Gordon, and Grey. Also fostering Luna the cat. Streams sometimes and has known Ovi waaaayyy too long. Therefore, he gets to be the mega thorn in her side and make streaming hell.
 
@@ -39,7 +39,7 @@ Site Manager (Admins)
 -----
 Senior moderators that helps with behind the scenes stuff and techincal tasks.
 
-thematbrown
+thematbrown (He/Him)
 ^^^^
 Howdy, the names Matt (I also go by MJB or MJ). I'm your local Texan IT nerd. I am not as active but I have discord open almost all the time so if you need to reach out to me, just shoot me a DM or ping me.
 
@@ -50,7 +50,7 @@ Senior Agent (Senior Moderators)
 -----
 These are the mods that have more experience and expect to be a in a supervisory role.
 
-GuacuGwazii
+GuacuGwazii (She/Her They/Them)
 ^^^^
 
 Gwazi, the resident shitposter and emote artist.
@@ -64,13 +64,13 @@ I'm in the EST timezones, you can feel free to ask me about anything! Remember t
 
 https://www.twitch.tv/lunarese
 
-sweetkitsu
+sweetkitsu (She/Her)
 ^^^^
 Kitt, its just Kitt.
 
 https://www.twitch.tv/sweetkitsu
 
-NomiNovaks
+NomiNovaks (She/Her)
 ^^^^
 Hiyooo!! My name is Nomi {she/her}, I’m quite active here so feel free to dm me! EST is where I stay. If you have any questions my dms are always open :D enjoy yourself here!!!
 
@@ -80,7 +80,7 @@ Maintenance (MC)
 ----
 These are moderators whose primary focus is the minecraft servers.
 
-NuTzy
+NuTzy (She/Her They/Them)
 ^^^^
 hullo! I’m NuTz (or Kia), I go by they/them & she pronouns. I’m ur local australian lurking in AEST . I’m usually around quite a bit given my time zone and bad sleep schedule. I’m always available for any questions and always happy to help if I can! Seeya around ❤️
 
@@ -91,35 +91,56 @@ Field Agent (Moderators)
 ----
 The frontline moderators! 
 
-bird_partii
+bird_partii (They/Them)
 ^^^^
 Hi I'm Jenna, I am a mod who live in Atlantic Time (basically one hour before Eastern) and I use they/them pronouns, my dms are open to all in case of anything and make sure to behave... or else :) and have fun
 
 https://www.twitch.tv/bird_partii
 
-Yaluii
+Yaluii (She/Her They/Them)
 ^^^^
 Heya! I'm Robyn (she/they pronouns) and I am a moderator who lives in CET timezones! Most of my socials are Yaluii, and I mostly lurk around. If you have any questions feel free to dm me, I'm usually awake when all the others aren't. Hope you enjoy your time with us!
 
 https://www.twitch.tv/yaluii
 
-starfr3nzy
+starfr3nzy (She/Her)
 ^^^^
 goooood morning campers my names star (she/her), im chilling in est, and i really enjoy la croix, please send me a dm if you like la croix they all think I’m crazy please tell me someone likes la croix please plea
 
 https://www.twitch.tv/starfr3nzy
 
 
-ScarDaPyro
+ScarDaPyro (He/Him)
 ^^^^
 Yo what up! the names Scar! ya internet gamer mod trying to regain motivation to draw and I am in CST time zone area. Though I am not super active on discord, but I do have it open all the time so I can help to the best of my powers if ya ever need something!
 
 https://www.twitch.tv/scardapyro
 
 
-Yelatio
+Yelatio (He/Him They/Them)
 ^^^^
 Resident French Man and mod for many of Ovi's friends
 
 https://www.twitch.tv/yelatio
 
+
+Team Myrral
+=======
+
+Team Hero
+=======
+
+Team Izzy
+=======
+
+Team Phai
+=======
+
+Team Kitty
+=======
+
+Team Cain
+=======
+
+Team Jenna
+=======
