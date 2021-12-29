@@ -127,11 +127,47 @@ https://www.twitch.tv/yelatio
 Team Myrral
 =======
 
+Administrators
+-----
+
+Nano
+^^^^
+
+Senior Moderators
+-----
+
+Yelatio (He/Him They/Them)
+^^^^
+Resident French Man and mod for many of Ovi's friends
+
+https://www.twitch.tv/yelatio
+
+Kuro
+^^^^^
+
+Ursul
+^^^^^
+
+Moderators
+----
+
 Team Hero
 =======
 
 Team Izzy
 =======
+
+Administrators
+----
+
+bird_partii (They/Them)
+^^^^
+Hi I'm Jenna, I am a mod who live in Atlantic Time (basically one hour before Eastern) and I use they/them pronouns, my dms are open to all in case of anything and make sure to behave... or else :) and have fun
+
+https://www.twitch.tv/bird_partii
+
+Modertators
+----
 
 Team Phai
 =======
