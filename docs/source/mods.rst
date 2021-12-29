@@ -1,22 +1,23 @@
+######
 Moderation Teams
-========
+######
 Here is the the moderator teams for the broadcasters
 
 Team Ovi
-------
+=======
 
 Site Council
-^^^^^^
+-------
 
 Sandhands
-''''''
+^^^^^
 .. image:: icons/sandhands.png
 Attorney-at-Sand.
 
 https://www.twitch.tv/mrsandhands 
 
 Finleaf
-'''''''
+^^^^^
 .. image:: icons/sandhands.png
 
 Sand-at-Attorney?
@@ -24,11 +25,11 @@ Sand-at-Attorney?
 https://www.twitch.tv/finleaf
 
 Site Director (Senior Admin)
-``````
+-------
 Most senior moderator. Manages the moderation team and behind the scenes stuff
 
 nerdyjohnny
-'''''''
+^^^^^
 .. image:: icons/sitedirector.png
 .. image:: icons/admin.png
 .. image:: icons/custodian.png
