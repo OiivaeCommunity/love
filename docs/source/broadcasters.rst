@@ -7,6 +7,8 @@ Oiivae (She/Her)
 ''''''
 Ovi, everyones favorite keter-classed neckogecko.
 
+Twitter: https://www.twitter.com/oiivae
+
 Twitch: https://www.twitch.tv/oiivae
 
 
