@@ -77,4 +77,6 @@ KittyKattGaming (She/Her)
 -----
 Just a kittykat that loves to game.
 
+Twitch: https://twitch.tv/kittykathgaming
+
 
