@@ -166,8 +166,40 @@ Hi I'm Jenna, I am a mod who live in Atlantic Time (basically one hour before Ea
 
 https://www.twitch.tv/bird_partii
 
+DoodlecrzyMeg
+^^^^
+
+Midi
+^^^^
+
+punkcherriez
+^^^^
+
 Modertators
 ----
+
+Eben!
+^^^^
+
+JYOÄGAK
+^^^^
+
+Team Violet
+====
+
+Yelatio (He/Him They/Them)
+^^^^
+Resident French Man and mod for many of Ovi's friends
+
+https://www.twitch.tv/yelatio
+
+Lapys
+^^^^
+
+Nano
+^^^^
+
+
 
 Team Phai
 =======
@@ -175,8 +207,23 @@ Team Phai
 Team Kitty
 =======
 
+Yelatio (He/Him They/Them)
+^^^^
+Resident French Man and mod for many of Ovi's friends
+
+https://www.twitch.tv/yelatio
+
+Nano
+^^^^
+
 Team Cain
 =======
 
 Team Jenna
 =======
+
+NomiNovaks (She/Her)
+^^^^
+Hiyooo!! My name is Nomi {she/her}, I’m quite active here so feel free to dm me! EST is where I stay. If you have any questions my dms are always open :D enjoy yourself here!!!
+
+https://www.twitch.tv/nominovaks
