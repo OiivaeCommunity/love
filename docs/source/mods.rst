@@ -3,6 +3,11 @@ Moderation Teams
 ######
 Here is the the moderator teams for the broadcasters
 
+.. note::
+
+   This page is under active development and awaiting rosters
+
+
 Team Ovi
 =======
 
@@ -154,6 +159,11 @@ Moderators
 Team Hero
 =======
 
+.. note::
+
+   Awaiting team roster.
+
+
 Team Izzy
 =======
 
@@ -206,6 +216,11 @@ Nano
 
 Team Phai
 =======
+
+.. note::
+
+   Awaiting team roster.
+   
 
 Team Kitty
 =======
