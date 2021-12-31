@@ -119,7 +119,7 @@ https://www.twitch.tv/scardapyro
 
 Yelatio (He/Him They/Them)
 ^^^^
-Resident French Man and mod for many of Ovi's friends
+Resident French Man and mod for many of the MILF members
 
 https://www.twitch.tv/yelatio
 
@@ -138,7 +138,7 @@ Senior Moderators
 
 Yelatio (He/Him They/Them)
 ^^^^
-Resident French Man and mod for many of Ovi's friends
+Resident French Man and mod for many of the MILF members
 
 https://www.twitch.tv/yelatio
 
@@ -189,7 +189,7 @@ Team Violet
 
 Yelatio (He/Him They/Them)
 ^^^^
-Resident French Man and mod for many of Ovi's friends
+Resident French Man and mod for many of the MILF members
 
 https://www.twitch.tv/yelatio
 
@@ -207,9 +207,10 @@ Team Phai
 Team Kitty
 =======
 
+
 Yelatio (He/Him They/Them)
 ^^^^
-Resident French Man and mod for many of Ovi's friends
+Resident French Man and mod for many of the MILF members
 
 https://www.twitch.tv/yelatio
 
@@ -221,6 +222,7 @@ Team Cain
 
 Team Jenna
 =======
+
 
 NomiNovaks (She/Her)
 ^^^^
