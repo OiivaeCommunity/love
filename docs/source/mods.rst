@@ -187,6 +187,9 @@ JYOÄGAK
 Team Violet
 ====
 
+Moderators
+-----
+
 Yelatio (He/Him They/Them)
 ^^^^
 Resident French Man and mod for many of the MILF members
@@ -207,6 +210,8 @@ Team Phai
 Team Kitty
 =======
 
+Moderators
+------
 
 Yelatio (He/Him They/Them)
 ^^^^
@@ -220,9 +225,22 @@ Nano
 Team Cain
 =======
 
+Moderators
+-------
+nerdyjohnny (He/Him)
+^^^^^
+Johnny, 23, the nerd who trys his best at paramedicine. Lives in NC, USA (EST) with 3 cats: Yuri, Gordon, and Grey. Also fostering Luna the cat. Streams sometimes and has known Ovi waaaayyy too long. Therefore, he gets to be the mega thorn in her side and make streaming hell.
+
+
+https://www.twitch.tv/nerdyjohnny
+
+.. warning:: Johnny is a paramedic that holds North Carolina credentials and practices under medical direction from a physican and guidelines established by physican, his agency, and the North Carolina Office of Emergency Medical Services. Johnny is not here to offer medical advice or treatments. Johnny is not here to establish a patient-provider relationship. Please consult your doctor or primary care specialist for non-emergent medical advice or treatment. Please visit an emergency department or call 911 in the event of an medical emergency.
+
 Team Jenna
 =======
 
+Moderators
+------
 
 NomiNovaks (She/Her)
 ^^^^
