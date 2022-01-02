@@ -264,6 +264,12 @@ https://www.twitch.tv/nerdyjohnny
 Arinittii
 ^^^^
 
+Zombotik
+^^^^
+
+Caseyium
+^^^^
+
 Team Jenna
 =======
 
