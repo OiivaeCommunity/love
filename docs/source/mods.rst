@@ -159,10 +159,14 @@ Moderators
 Team Hero
 =======
 
-.. note::
+Moderators
+----
 
-   Awaiting team roster.
+Kuro
+^^^^^
 
+Nano
+^^^^
 
 Team Izzy
 =======
@@ -182,8 +186,13 @@ DoodlecrzyMeg
 Midi
 ^^^^
 
-punkcherriez
+punkcherriez (He/Him)
 ^^^^
+
+my names lou im 19 and i am eating ur stale tortilla chips from the back of ur cupboard . i also draw sometimes smile . i dont know what other words to put here . did you know that penguins have knees? so weird. 
+
+https://www.twitch.tv/punkcherries
+
 
 Modertators
 ----
