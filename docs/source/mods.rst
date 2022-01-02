@@ -77,7 +77,7 @@ https://www.twitch.tv/sweetkitsu
 
 NomiNovaks (She/Her)
 ^^^^
-Hiyooo!! My name is Nomi {she/her}, I’m quite active here so feel free to dm me! EST is where I stay. If you have any questions my dms are always open :D enjoy yourself here!!!
+its-a me Nomi, I'm 19 and and I still haven't learned how to read. I'm a secret agent American who moved to Canada to steal maple syrup. I don't know what else to say but eat your greens :) 
 
 https://www.twitch.tv/nominovaks
 
@@ -278,6 +278,6 @@ Moderators
 
 NomiNovaks (She/Her)
 ^^^^
-Hiyooo!! My name is Nomi {she/her}, I’m quite active here so feel free to dm me! EST is where I stay. If you have any questions my dms are always open :D enjoy yourself here!!!
+its-a me Nomi, I'm 19 and and I still haven't learned how to read. I'm a secret agent American who moved to Canada to steal maple syrup. I don't know what else to say but eat your greens :) 
 
 https://www.twitch.tv/nominovaks
