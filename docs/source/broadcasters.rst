@@ -14,7 +14,7 @@ Twitch: https://www.twitch.tv/oiivae
 
 Myrral (She/Her)
 -----
-Myrral, the friendly blue ringed octopus! Myrral Loves gaming, anime, science, Bees, and Hollow Knight
+Myrral, the friendly blue ringed octopus! She's iridescent and also highly venomous :D
 
 Twitter: https://twitter.com/_myrral
 
