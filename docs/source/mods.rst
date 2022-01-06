@@ -162,6 +162,13 @@ Team Hero
 Moderators
 ----
 
+Yelatio (He/Him They/Them)
+^^^^
+Resident French Man and mod for many of the MILF members
+
+https://www.twitch.tv/yelatio
+
+
 Kuro
 ^^^^^
 
