@@ -71,7 +71,9 @@ https://www.twitch.tv/lunarese
 
 sweetkitsu (She/Her)
 ^^^^
-Kitt, its just Kitt.
+19
+I'm an artist who needs to art more lol!! I play a lot of games most of my free days but I want to get back to drawing and learning how to animate again, love meeting new friends so feel free to bother me >:))) 
+(i may be pst time but i never sleep)
 
 https://www.twitch.tv/sweetkitsu
 
