@@ -215,6 +215,16 @@ JYOÄGAK
 Team Violet
 ====
 
+Administrators
+------
+
+Lapys
+^^^^
+Also called Seika sometime, 30, a dumb weeb addicted to gaming, watching cute anime girls online and trying to be one myself. I also write. Living in France (CET/UTC+1). Also might be a bit closer to the streamer she's modding for than just admin.
+
+https://www.twitch.tv/lapysaoneeris
+
+
 Moderators
 -----
 
@@ -223,9 +233,6 @@ Yelatio (He/Him They/Them)
 Resident French Man and mod for many of the MILF members
 
 https://www.twitch.tv/yelatio
-
-Lapys
-^^^^
 
 Nano
 ^^^^
