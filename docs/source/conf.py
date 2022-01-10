@@ -2,7 +2,7 @@
 
 # -- Project information
 
-project = 'Mutuals Integrated Love Federation'
+project = 'League of Virtual Entertainers'
 copyright = '2021, nerdyjohnny and Oiivae'
 author = 'nerdyjohnny'
 
