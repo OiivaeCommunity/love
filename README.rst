@@ -1,1 +1,1 @@
-Documentation for Mutuals Integrated Love Federation
+Documentation for League of Virtual Entertainers
