@@ -126,7 +126,7 @@ https://www.twitch.tv/scardapyro
 
 Yelatio (He/Him They/Them)
 ^^^^
-Resident French Man and mod for many of the MILF members
+Resident French Man and mod for many of the LOVE members
 
 https://www.twitch.tv/yelatio
 
@@ -145,7 +145,7 @@ Senior Moderators
 
 Yelatio (He/Him They/Them)
 ^^^^
-Resident French Man and mod for many of the MILF members
+Resident French Man and mod for many of the LOVE members
 
 https://www.twitch.tv/yelatio
 
@@ -166,7 +166,7 @@ Moderators
 
 Yelatio (He/Him They/Them)
 ^^^^
-Resident French Man and mod for many of the MILF members
+Resident French Man and mod for many of the LOVE members
 
 https://www.twitch.tv/yelatio
 
@@ -230,7 +230,7 @@ Moderators
 
 Yelatio (He/Him They/Them)
 ^^^^
-Resident French Man and mod for many of the MILF members
+Resident French Man and mod for many of the LOVE members
 
 https://www.twitch.tv/yelatio
 
@@ -255,7 +255,7 @@ Moderators
 
 Yelatio (He/Him They/Them)
 ^^^^
-Resident French Man and mod for many of the MILF members
+Resident French Man and mod for many of the LOVE members
 
 https://www.twitch.tv/yelatio
 
