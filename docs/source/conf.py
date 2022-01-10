@@ -6,8 +6,8 @@ project = 'League of Virtual Entertainers'
 copyright = '2021, nerdyjohnny and Oiivae'
 author = 'nerdyjohnny'
 
-release = '1.0'
-version = '1.0.0'
+release = '0.5'
+version = '0.5.0'
 
 # -- General configuration
 
