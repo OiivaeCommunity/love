@@ -71,13 +71,15 @@ https://www.twitch.tv/lunarese
 
 sweetkitsu (She/Her)
 ^^^^
-Kitt, its just Kitt.
+19
+I'm an artist who needs to art more lol!! I play a lot of games most of my free days but I want to get back to drawing and learning how to animate again, love meeting new friends so feel free to bother me >:))) 
+(i may be pst time but i never sleep)
 
 https://www.twitch.tv/sweetkitsu
 
 NomiNovaks (She/Her)
 ^^^^
-Hiyooo!! My name is Nomi {she/her}, I’m quite active here so feel free to dm me! EST is where I stay. If you have any questions my dms are always open :D enjoy yourself here!!!
+its-a me Nomi, I'm 19 and and I still haven't learned how to read. I'm a secret agent American who moved to Canada to steal maple syrup. I don't know what else to say but eat your greens :) 
 
 https://www.twitch.tv/nominovaks
 
@@ -124,7 +126,7 @@ https://www.twitch.tv/scardapyro
 
 Yelatio (He/Him They/Them)
 ^^^^
-Resident French Man and mod for many of the MILF members
+Resident French Man and mod for many of the LOVE members
 
 https://www.twitch.tv/yelatio
 
@@ -143,7 +145,7 @@ Senior Moderators
 
 Yelatio (He/Him They/Them)
 ^^^^
-Resident French Man and mod for many of the MILF members
+Resident French Man and mod for many of the LOVE members
 
 https://www.twitch.tv/yelatio
 
@@ -159,10 +161,21 @@ Moderators
 Team Hero
 =======
 
-.. note::
+Moderators
+----
 
-   Awaiting team roster.
+Yelatio (He/Him They/Them)
+^^^^
+Resident French Man and mod for many of the LOVE members
 
+https://www.twitch.tv/yelatio
+
+
+Kuro
+^^^^^
+
+Nano
+^^^^
 
 Team Izzy
 =======
@@ -182,8 +195,13 @@ DoodlecrzyMeg
 Midi
 ^^^^
 
-punkcherriez
+punkcherriez (He/Him)
 ^^^^
+
+my names lou im 19 and i am eating ur stale tortilla chips from the back of ur cupboard . i also draw sometimes smile . i dont know what other words to put here . did you know that penguins have knees? so weird. 
+
+https://www.twitch.tv/punkcherries
+
 
 Modertators
 ----
@@ -197,17 +215,24 @@ JYOÄGAK
 Team Violet
 ====
 
+Administrators
+------
+
+Lapys
+^^^^
+Also called Seika sometime, 30, a dumb weeb addicted to gaming, watching cute anime girls online and trying to be one myself. I also write. Living in France (CET/UTC+1). Also might be a bit closer to the streamer she's modding for than just admin.
+
+https://www.twitch.tv/lapysaoneeris
+
+
 Moderators
 -----
 
 Yelatio (He/Him They/Them)
 ^^^^
-Resident French Man and mod for many of the MILF members
+Resident French Man and mod for many of the LOVE members
 
 https://www.twitch.tv/yelatio
-
-Lapys
-^^^^
 
 Nano
 ^^^^
@@ -230,7 +255,7 @@ Moderators
 
 Yelatio (He/Him They/Them)
 ^^^^
-Resident French Man and mod for many of the MILF members
+Resident French Man and mod for many of the LOVE members
 
 https://www.twitch.tv/yelatio
 
@@ -255,6 +280,15 @@ https://www.twitch.tv/nerdyjohnny
 Arinittii
 ^^^^
 
+Zombotik
+^^^^
+
+Caseyium
+^^^^
+
+chxzer
+^^^^
+
 Team Jenna
 =======
 
@@ -263,6 +297,6 @@ Moderators
 
 NomiNovaks (She/Her)
 ^^^^
-Hiyooo!! My name is Nomi {she/her}, I’m quite active here so feel free to dm me! EST is where I stay. If you have any questions my dms are always open :D enjoy yourself here!!!
+its-a me Nomi, I'm 19 and and I still haven't learned how to read. I'm a secret agent American who moved to Canada to steal maple syrup. I don't know what else to say but eat your greens :) 
 
 https://www.twitch.tv/nominovaks
