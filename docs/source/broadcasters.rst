@@ -75,7 +75,9 @@ Twitch: https://twitch.tv/hero_uwzoa
 
 KittyKattGaming (She/Her)
 -----
-Just a kittykat that loves to game.
+Baby streamer/ boomer brain/ fat lazy cat who loves food and video games.
+
+Twitter: https://twitter.com/TheKittyKattGa1
 
 Twitch: https://twitch.tv/kittykathgaming
 
