@@ -300,3 +300,6 @@ NomiNovaks (She/Her)
 its-a me Nomi, I'm 19 and and I still haven't learned how to read. I'm a secret agent American who moved to Canada to steal maple syrup. I don't know what else to say but eat your greens :) 
 
 https://www.twitch.tv/nominovaks
+
+Team Kitsu
+=======
