@@ -185,6 +185,7 @@ Administrators
 
 bird_partii (They/Them)
 ^^^^
+
 Hi I'm Jenna, I am a mod who live in Atlantic Time (basically one hour before Eastern) and I use they/them pronouns, my dms are open to all in case of anything and make sure to behave... or else :) and have fun
 
 https://www.twitch.tv/bird_partii
@@ -203,7 +204,7 @@ my names lou im 20 and i am eating ur stale tortilla chips from the back of ur c
 https://www.twitch.tv/punkcherries
 
 
-Modertators
+Moderators
 ----
 
 Eben!
@@ -211,6 +212,9 @@ Eben!
 
 JYOÄGAK
 ^^^^
+
+Lead artist for AVTP, im always working on something! Sometimes i stream! I live in new york, speak english and know very limited spanish. Im working on my own story
+https://www.twitch.tv/jyoagak
 
 Team Violet
 ====
