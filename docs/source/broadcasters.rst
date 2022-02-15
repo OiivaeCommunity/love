@@ -81,4 +81,20 @@ Twitter: https://twitter.com/TheKittyKattGa1
 
 Twitch: https://twitch.tv/kittykathgaming
 
+Bird_Partii (They/Them)
+-----
+That Canadian Bird!
 
+Twitter: https://twitter.com/Bird_Partii
+
+Twitch: https://www.twitch.tv/bird_partii
+
+sweetkitsu (She/Her)
+----
+19
+I'm an artist who needs to art more lol!! I play a lot of games most of my free days but I want to get back to drawing and learning how to animate again, love meeting new friends so feel free to bother me >:))) 
+(i may be pst time but i never sleep)
+
+Twitter: https://twitter.com/SWEETKITSU
+
+Twitch: https://www.twitch.tv/sweetkitsu
