@@ -185,6 +185,7 @@ Administrators
 
 bird_partii (They/Them)
 ^^^^
+
 Hi I'm Jenna, I am a mod who live in Atlantic Time (basically one hour before Eastern) and I use they/them pronouns, my dms are open to all in case of anything and make sure to behave... or else :) and have fun
 
 https://www.twitch.tv/bird_partii
@@ -198,12 +199,12 @@ Midi
 punkcherriez (He/Him)
 ^^^^
 
-my names lou im 19 and i am eating ur stale tortilla chips from the back of ur cupboard . i also draw sometimes smile . i dont know what other words to put here . did you know that penguins have knees? so weird. 
+my names lou im 20 and i am eating ur stale tortilla chips from the back of ur cupboard . i also draw sometimes smile . i dont know what other words to put here . did you know that penguins have knees? so weird. 
 
 https://www.twitch.tv/punkcherries
 
 
-Modertators
+Moderators
 ----
 
 Eben!
@@ -211,6 +212,9 @@ Eben!
 
 JYOÄGAK
 ^^^^
+
+Lead artist for AVTP, im always working on something! Sometimes i stream! I live in new york, speak english and know very limited spanish. Im working on my own story
+https://www.twitch.tv/jyoagak
 
 Team Violet
 ====
@@ -300,3 +304,6 @@ NomiNovaks (She/Her)
 its-a me Nomi, I'm 19 and and I still haven't learned how to read. I'm a secret agent American who moved to Canada to steal maple syrup. I don't know what else to say but eat your greens :) 
 
 https://www.twitch.tv/nominovaks
+
+Team Kitsu
+=======
